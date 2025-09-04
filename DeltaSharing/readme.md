@@ -1,1 +1,0 @@
-Delat Sharing
